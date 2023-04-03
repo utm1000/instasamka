@@ -1,2 +1,2 @@
 # instasamka
-<a href="https://instasamka.top/" target="_blank" rel="nofollow noopener">instasamka</a>
+<li><a href="https://instasamka.top/" rel="nofollow">Instasamka</a> - Site &amp; Instasamka</li>
